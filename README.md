@@ -31,3 +31,6 @@
 ![](https://64.media.tumblr.com/91bf4bacebc3ad4632bc7c28443e8700/6a2559c0f6f86997-29/s75x75_c1/abd21119b370c7f14f0be3155821dff8e8e21482.gifv)
 
 ###### dont copy, thx 👀
+
+<img width="1920" height="1920" alt="image" src="https://github.com/user-attachments/assets/bea2e300-478f-45e2-8ebb-933c6e7a98b0" />
+
